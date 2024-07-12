@@ -17,7 +17,7 @@
 
 ## About me
 ---
-- Hi I'm Aws, 20 y.o from jordan.
+- Hi I'm Ice, 20 y.o from jordan.
 
 ## My Top Languages
 ---
